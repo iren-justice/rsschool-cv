@@ -26,3 +26,6 @@ Basic knowledge of HTML5, CSS3, JavaScript, Git, GitHub.
 
 Belarusian State Economic University: Faculty of Finance and Banking
 
+## English
+
+B1 level. I attend English courses at MSLU, use different apps such as Duolingo, LinguaLeo, Tandem. Watch various programs, movies and TV series in English language, read books. I also practice written and oral English skills every day by talking to native speakers. 
